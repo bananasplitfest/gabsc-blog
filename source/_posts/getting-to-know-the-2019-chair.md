@@ -3,9 +3,9 @@ title: Getting to Know the 2019 Chair
 date: 2019-03-04 11:18:43
 tags:
 ---
-Before introducing someone new, I want to be sure to say, "Thank you," to **Michael Simons**. Michael is the General Manager of SpringHill Suites Pittsburgh Latrobe and served at the event's committe chair from 2015-2018. It was his leadership and management experience the Greater Latrobe - Laurel Valley Chamber of Commerce was looking for to fill the role. Whether it was running a meeting, seeking donations and sponsorships, recruiting volunteers, coming up with solutions to unexpected road bumps, or, yes, taking out trash, Michael was there to help the event succeed. So, again, THANK YOU Michael!
+Before introducing someone new, I want to be sure to say, "Thank you," to **Michael Simons**. Michael is the General Manager of SpringHill Suites Pittsburgh Latrobe and served at the event's committe chair from 2015-2018. It was his leadership and management experience the Greater Latrobe - Laurel<!-- more --> Valley Chamber of Commerce was looking for to fill the role. Whether it was running a meeting, seeking donations and sponsorships, recruiting volunteers, coming up with solutions to unexpected road bumps, or, yes, taking out trash, Michael was there to help the event succeed. So, again, THANK YOU Michael!
 
-Filling the chairperson role for 2019 is **Misty Markiewicz Enos**. Misty is<!-- more --> the owner of MPS Tax Services, who recently opened a new office in Latrobe. She previously worked as the Director of Communications for the Center for Organ Recovery & Education. I asked Misty a couple questions to get to know her a little better.
+Filling the chairperson role for 2019 is **Misty Markiewicz Enos**. Misty is the owner of MPS Tax Services, who recently opened a new office in Latrobe. She previously worked as the Director of Communications for the Center for Organ Recovery & Education. I asked Misty a couple questions to get to know her a little better.
 
 -------------
 
