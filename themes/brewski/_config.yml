@@ -1,0 +1,23 @@
+name: Brewski
+url: https://github.com/tiaanduplessis/hexo-theme-brewski
+
+menu:
+  Home: /
+  Forms: /forms
+  Archives: /archives
+  Store: http://store.bananasplitfest.com/
+
+#favicon:
+logo: /gabsc-logo.svg
+
+# Disqus shortname
+disqus:
+
+# Analytics
+google_analytics:
+
+# Copyright Infomation
+copyright:
+  since: 2013
+  name: Great American Banana Split Celebration
+  url: https://bananasplitfest.com
