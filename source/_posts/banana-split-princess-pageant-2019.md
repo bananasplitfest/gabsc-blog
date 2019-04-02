@@ -10,9 +10,9 @@ One person the pageant experience isn't new to is Georgia Teppert, assistant sup
 Girls ages 9-11 who live in Latrobe, Ligonier, or Derry are welcome to participate. They can pick up an application packet from their school or have their parents download and print one from the celebration website. Each girl will answer a few questions about themselves, write a 100 word essay explaining why she wants to be the princess, and submit a headshot before the deadline on April 15.
 
 There is no application fee to participate, but there are some mandatory meetings for participants to attend:
-Friday, April 26: Informational meeting and first rehearsal
-Wednesday, May 15: Second rehearsal
-Sunday, June 2 (report at 10AM): Pageant and interview day
+**Friday, April 26:** Informational meeting and first rehearsal (5-7pm)
+**Wednesday, May 15:** Second rehearsal (5-7pm)
+**Sunday, June 2:** Pageant and interview day (report at 10am, pageant at 4pm)
 
 Each of the practices and the pageant itself will be in the cafetorium of Latrobe Elementary School. That's the new school at 20 Cedar Street Latrobe, PA 15650. We're thankful to the Greater Latrobe School District for allowing us to use this great space and to share it with the community.
 
