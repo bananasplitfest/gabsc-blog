@@ -93,3 +93,8 @@ hfc_img:
   enable: false
 hfc_favicons:
   enable: false
+
+# Aliases
+## Docs: https://github.com/hexojs/hexo-generator-alias
+alias:
+  "vendors/": "forms"
