@@ -3,7 +3,7 @@ title: 2019 Princess Crowned
 date: 2019-06-03 11:18:43
 tags:
 ---
-First, we want to thank everyone that came out for the first-ever Banana Split Princess Pageant at Latrobe Elementary School. The pageant was a massive success and the girls loved making memories with new friends. They had been rehearsing since April, going through their opening routine, personal introductions, formal wear segments and preparing for interviews with the judges on their big day. Not only did the girls get to make new memories on stage, but they got to share their dreams and goals with the judges and attendees. Every contestant should be proud of the work they put in!
+First, we want to thank everyone that came out for the first-ever Banana Split Princess Pageant at Latrobe Elementary School. The pageant was a massive success and the girls loved making memories with new friends. They had been rehearsing since April,<!-- more --> going through their opening routine, personal introductions, formal wear segments and preparing for interviews with the judges on their big day. Not only did the girls get to make new memories on stage, but they got to share their dreams and goals with the judges and attendees. Every contestant should be proud of the work they put in!
 
 Members of the Banana Split Court includes:
     4th Runner Up – Karlee Clark, Latrobe Elementary School
