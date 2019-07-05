@@ -16,4 +16,6 @@ The 2019 princess has been crowned! Please look for application forms to become 
 ** Vendors **
 - [Guidelines](https://bananasplitfest.com/2019-vendor-guidelines.pdf)
 - [Application](https://bananasplitfest.com/2019-vendor-application.pdf)
+
+** Non-Profits **
 - [Non-Profit Activity Partner](https://bananasplitfest.com/2019-nonprofit-activity-partner-application.pdf)

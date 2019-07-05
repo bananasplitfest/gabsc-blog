@@ -3,6 +3,9 @@ title: 2019 Princess Crowned
 date: 2019-06-03 11:18:43
 tags:
 ---
+
+{% asset_img BS_PAG-3082.JPG "2019 Banana Split Princess Court" %}
+
 First, we want to thank everyone that came out for the first-ever Banana Split Princess Pageant at Latrobe Elementary School. The pageant was a massive success and the girls loved making memories with new friends. They had been rehearsing since April,<!-- more --> going through their opening routine, personal introductions, formal wear segments and preparing for interviews with the judges on their big day. Not only did the girls get to make new memories on stage, but they got to share their dreams and goals with the judges and attendees. Every contestant should be proud of the work they put in!
 
 Members of the Banana Split Court includes:
@@ -17,6 +20,8 @@ Jannie will reign as Banana Split Princess for one year before passing the crown
 
 
 🍌 Jason
+
+** Photo by ** Melissa Dube of Yellow Mack Graphics & Photography
 
 ---
 Jason Walko is a senior marketing major at St. Vincent College. During his time in school he's worked as a Marketing Communications Assistant, on the SVC Activities Programming Board, and as an Admissions Ambassador. He's spending part of his summer doing an internship with the Greater Latrobe - Laurel Valley Chamber of Commerce specifically helping with the Banana Split Celebration.
