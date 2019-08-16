@@ -1,13 +1,13 @@
 ---
 title: 115th Banana Split Birthday Give-A-Way
-date: 2019-08-04hex 16:39:42
+date: 2019-08-04 16:39:42
 tags:
 ---
 Who wants free stuff? In honor of the banana split's 115th birthday we're lining up weekly summer giveaways to go out to some lucky winners.<!-- more --> Click the link below to enter for a chance to win. Winners will be announced on Monday of each week! And for future contests and giveaways, follow our social media accounts.
 
 ** Week 6: August 5 - August 11 **
 Two passes to the watch the Steelers practice from the sideline of Training Camp
-Contest link: https://bnasp.lt/2GNetLY
+Winner: Susan Davis
 
 ** Week 5: July 29 - August 4 **
 
